@@ -97,3 +97,6 @@
 
 ![image](https://user-images.githubusercontent.com/91044039/233987516-2469a85a-9295-4f47-92ed-d4b9fe2e67c1.png)
 
+![image](https://github.com/jungsungmoon/DACON-SIKSU/assets/91044039/e9eab600-13af-4c52-95e7-13076c3d560a)
+
+
