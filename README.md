@@ -99,4 +99,13 @@
 
 ![image](https://github.com/jungsungmoon/DACON-SIKSU/assets/91044039/e9eab600-13af-4c52-95e7-13076c3d560a)
 
+![image](https://github.com/jungsungmoon/DACON-SIKSU/assets/91044039/6b3d0c53-e141-4070-9f46-6862ea3becb5)
+
+![image](https://github.com/jungsungmoon/DACON-SIKSU/assets/91044039/c8819ce3-e1fd-41c0-8877-4881c662eb5c)
+
+![image](https://github.com/jungsungmoon/DACON-SIKSU/assets/91044039/164c87bb-6633-4c5f-ade7-3347801a705a)
+
+![image](https://github.com/jungsungmoon/DACON-SIKSU/assets/91044039/cbdbbc27-f272-4c48-aa4f-5a9fc39c7b0e)
+
+![image](https://github.com/jungsungmoon/DACON-SIKSU/assets/91044039/3e3eb936-0023-497c-a27d-7668d4350344)
 
